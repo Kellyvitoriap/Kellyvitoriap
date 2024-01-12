@@ -1,4 +1,3 @@
-# 💫 About Me:
 Hi! I am Vitoria Kelly, be vey welcome👋<br>- 🔭 I currently study systems development<br>- 🌱 I’m currently learning html<br>- 😄 Pronouns: she/her
 
 
